@@ -27,7 +27,7 @@ jobs:
         run: |
           git config --global user.name "thesachinmathew"
           git config --global user.email "sachinmathew1917@gmail.com"
-          git pull @github.com/thesachinmathew/ssss.git">https://thesachinmathew:${GH_PAT}@github.com/thesachinmathew/ssss.git
+          git pull https://thesachinmathew:${GH_PAT}@github.com/thesachinmathew/ssss.git
           git add README.md
           git commit -m "Updated README with today's fact" || exit 0
-          git push -f @github.com/thesachinmathew/ssss.git">https://thesachinmathew:${GH_PAT}@github.com/thesachinmathew/ssss.git
+          git push -f https://thesachinmathew:${GH_PAT}@github.com/thesachinmathew/ssss.git
