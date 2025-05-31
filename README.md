@@ -1,2 +1,2 @@
 odingo
-**<b>📌 Daily Fact:</b>** May 30th is the day in 1588 that the last ship of the Spanish Armada sets sail from Lisbon heading for the English Channel.
+**<b>📌 Daily Fact:</b>** May 31st is the day in 1884 that Arrival at Plymouth of Tawhiao, King of Maoris, to claim protection of Queen Victoria.
