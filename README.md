@@ -1,2 +1,2 @@
 odingo
-**<b>📌 Daily Fact:</b>** May 31st is the day in 1884 that Arrival at Plymouth of Tawhiao, King of Maoris, to claim protection of Queen Victoria.
+**<b>📌 Daily Fact:</b>** June 1st is the day in 1962 that the Pilkington Committee on Broadcasting concludes, among other things, that the British public did not want commercial radio broadcasting.
