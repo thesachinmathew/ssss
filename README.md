@@ -1,2 +1,2 @@
 odingo
-**<b>📌 Daily Fact:</b>** June 1st is the day in 1962 that the Pilkington Committee on Broadcasting concludes, among other things, that the British public did not want commercial radio broadcasting.
+**<b>📌 Daily Fact:</b>** June 2nd is the day in 1990 that the Lower Ohio Valley tornado outbreak spawns 66 confirmed tornadoes in Illinois, Indiana, Kentucky, and Ohio, killing 12.
