@@ -1,2 +1,2 @@
 odingo
-**<b>📌 Daily Fact:</b>** June 3rd is the day in 2006 that the union of Serbia and Montenegro comes to an end with Montenegro's formal declaration of independence.
+**<b>📌 Daily Fact:</b>** June 4th is the day in 1989 that the Tiananmen Square protests are violently ended in Beijing by the People's Liberation Army.
