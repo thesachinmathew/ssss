@@ -1,2 +1,2 @@
 odingo
-**<b>📌 Daily Fact:</b>** June 7th is the day in 1975 that the inaugural Cricket World Cup begins in England.
+**<b>📌 Daily Fact:</b>** June 8th is the day in 2008 that the Akihabara massacre takes place in the Akihabara shopping quarter in Chiyoda, Tokyo, Japan.
