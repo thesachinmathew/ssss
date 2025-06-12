@@ -1,2 +1,2 @@
 odingo
-**<b>📌 Daily Fact:</b>** June 11th is the day in 1982 that the Sentosa Musical Fountain was officially opened as part of the second phase of construction on the island of Sentosa, Singapore.
+**<b>📌 Daily Fact:</b>** June 12th is the day in 1987 that the Central African Republic's former Emperor Jean-Bédel Bokassa is sentenced to death for crimes he had committed during his 13-year rule.
