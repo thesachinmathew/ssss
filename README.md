@@ -1,2 +1,2 @@
 odingo
-**<b>📌 Daily Fact:</b>** June 13th is the day in 2007 that the Al Askari Mosque is bombed for a second time.
+**<b>📌 Daily Fact:</b>** June 14th is the day in 1900 that Hawaii becomes a United States territory.
