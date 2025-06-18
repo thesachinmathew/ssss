@@ -1,2 +1,2 @@
 odingo
-**<b>📌 Daily Fact:</b>** June 17th is the day in 1863 that Battle of Aldie in the Gettysburg Campaign of the American Civil War.
+**<b>📌 Daily Fact:</b>** June 18th is the day in 1264 that the Parliament of Ireland meets at Castledermot in County Kildare, the first definitively known meeting of this Irish legislature.
