@@ -1,2 +1,2 @@
 odingo
-**<b>📌 Daily Fact:</b>** June 21st is the day in 1919 that Admiral Ludwig von Reuter scuttles the German fleet in Scapa Flow, Orkney.
+**<b>📌 Daily Fact:</b>** June 22nd is the day in 1944 that U.S. President Franklin D. Roosevelt signs into law the Servicemen's Readjustment Act of 1944, commonly known as the G.I.
