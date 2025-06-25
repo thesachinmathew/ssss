@@ -1,2 +1,2 @@
 odingo
-**<b>📌 Daily Fact:</b>** June 24th is the day in 1963 that the United Kingdom grants Zanzibar internal self-government.
+**<b>📌 Daily Fact:</b>** June 25th is the day in 1944 that the final page of the comic Krazy Kat was published, exactly two months after its author George Herriman died.
