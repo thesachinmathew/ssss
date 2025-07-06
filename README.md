@@ -1,2 +1,2 @@
 odingo
-**<b>📌 Daily Fact:</b>** July 5th is the day in 1948 that National Health Service Acts created the national public health systems in the United Kingdom.
+**<b>📌 Daily Fact:</b>** July 6th is the day in 1483 that Richard III is crowned King of England.
