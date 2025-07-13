@@ -1,2 +1,2 @@
 odingo
-**<b>📌 Daily Fact:</b>** July 12th is the day in 1580 that the Ostrog Bible, one of the early printed Bibles in a Slavic language, is published.
+**<b>📌 Daily Fact:</b>** July 13th is the day in 1923 that the Hollywood Sign is officially dedicated in the hills above Hollywood, Los Angeles.
