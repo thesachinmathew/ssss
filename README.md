@@ -1,2 +1,2 @@
 odingo
-**<b>📌 Daily Fact:</b>** July 13th is the day in 1923 that the Hollywood Sign is officially dedicated in the hills above Hollywood, Los Angeles.
+**<b>📌 Daily Fact:</b>** July 14th is the day in 1911 that Harry Atwood, an exhibition pilot for the Wright Brothers lands his airplane at the South Lawn of the White House.
