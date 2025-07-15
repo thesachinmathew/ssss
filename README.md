@@ -1,2 +1,2 @@
 odingo
-**<b>📌 Daily Fact:</b>** July 14th is the day in 1911 that Harry Atwood, an exhibition pilot for the Wright Brothers lands his airplane at the South Lawn of the White House.
+**<b>📌 Daily Fact:</b>** July 15th is the day in 1985 that the Nintendo Entertainment System, the best-selling game console of its time, is released in Japan.
