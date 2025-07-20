@@ -1,2 +1,2 @@
 odingo
-**<b>📌 Daily Fact:</b>** July 19th is the day in 1963 that Joe Walker flies a North American X-15 to a record altitude of 106,010 metres (347,800 feet) on X-15 Flight 90.
+**<b>📌 Daily Fact:</b>** July 20th is the day in 1969 that a cease fire is announced between Honduras and El Salvador, 6 days after the beginning of the "Football War".
