@@ -1,2 +1,2 @@
 odingo
-**<b>📌 Daily Fact:</b>** July 20th is the day in 1969 that a cease fire is announced between Honduras and El Salvador, 6 days after the beginning of the "Football War".
+**<b>📌 Daily Fact:</b>** July 21st is the day in 1914 that the Crown council of Romania decides the country shall remain neutral in World War I.
