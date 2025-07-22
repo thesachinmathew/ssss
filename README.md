@@ -1,2 +1,2 @@
 odingo
-**<b>📌 Daily Fact:</b>** July 21st is the day in 1914 that the Crown council of Romania decides the country shall remain neutral in World War I.
+**<b>📌 Daily Fact:</b>** July 22nd is the day in 1894 that the first ever motorized racing event is held in France between the cities of Paris and Rouen.
