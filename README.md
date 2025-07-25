@@ -1,2 +1,2 @@
 odingo
-**<b>📌 Daily Fact:</b>** July 24th is the day in 1715 that a Spanish treasure fleet of 10 ships under Admiral Ubilla leaves Havana, Cuba for Spain.
+**<b>📌 Daily Fact:</b>** July 25th is the day in 1536 that Sebastián de Belalcázar on his search of El Dorado founds the city of Santiago de Cali.
