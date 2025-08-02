@@ -1,2 +1,2 @@
 odingo
-**<b>📌 Daily Fact:</b>** August 1st is the day in 1907 that the start of first Scout camp on Brownsea Island, the origin of the worldwide Scouting movement.
+**<b>📌 Daily Fact:</b>** August 2nd is the day in 1937 that the Marihuana Tax Act of 1937 is passed in America, the effect of which is to render marijuana and all its by-products illegal.
