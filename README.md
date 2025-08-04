@@ -1,2 +1,2 @@
 odingo
-**<b>📌 Daily Fact:</b>** August 3rd is the day in 2004 that the pedestal of the Statue of Liberty reopens after being closed since the September 11 attacks.
+**<b>📌 Daily Fact:</b>** August 4th is the day in 1824 that the Battle of Kos is fought between Turk and Greek forces.
