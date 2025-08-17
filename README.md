@@ -1,2 +1,2 @@
 odingo
-**<b>📌 Daily Fact:</b>** August 16th is the day in 1944 that First flight of the Junkers Ju 287.
+**<b>📌 Daily Fact:</b>** August 17th is the day in 1883 that the first public performance of the Dominican Republic's national anthem, Himno Nacional.
