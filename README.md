@@ -1,2 +1,2 @@
 odingo
-**<b>📌 Daily Fact:</b>** August 19th is the day in 2002 that a Russian Mi-26 helicopter carrying troops is hit by a Chechen missile outside of Grozny, killing 118 soldiers.
+**<b>📌 Daily Fact:</b>** August 20th is the day in 1775 that the Spanish establish the Presidio San Augustin del Tucson in the town that became Tucson, Arizona.
