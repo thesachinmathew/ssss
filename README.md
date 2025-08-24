@@ -1,2 +1,2 @@
 odingo
-**<b>📌 Daily Fact:</b>** August 23rd is the day in 79 that Mount Vesuvius begins stirring, on the feast day of Vulcan, the Roman god of fire.
+**<b>📌 Daily Fact:</b>** August 24th is the day in 1902 that a statue of Joan of Arc is unveiled in Saint-Pierre-le-Moûtier.
