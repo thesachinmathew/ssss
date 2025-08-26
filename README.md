@@ -1,2 +1,2 @@
 odingo
-**<b>📌 Daily Fact:</b>** August 25th is the day in 1991 that the Battle of Vukovar begins.
+**<b>📌 Daily Fact:</b>** August 26th is the day in 1789 that the Declaration of the Rights of Man and of the Citizen is approved by the National Constituent Assembly of France.
