@@ -1,2 +1,2 @@
 odingo
-**<b>📌 Daily Fact:</b>** August 26th is the day in 1789 that the Declaration of the Rights of Man and of the Citizen is approved by the National Constituent Assembly of France.
+**<b>📌 Daily Fact:</b>** August 27th is the day in 1939 that First flight of the turbojet-powered Heinkel He 178, the world's first jet aircraft.
