@@ -1,2 +1,2 @@
 odingo
-**<b>📌 Daily Fact:</b>** August 27th is the day in 1939 that First flight of the turbojet-powered Heinkel He 178, the world's first jet aircraft.
+**<b>📌 Daily Fact:</b>** August 28th is the day in 1953 that Nippon Television broadcasts Japan's first television show, including its first TV advertisement.
