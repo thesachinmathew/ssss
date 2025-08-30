@@ -1,2 +1,2 @@
 odingo
-**<b>📌 Daily Fact:</b>** August 29th is the day in 1498 that Vasco da Gama decides to depart Calicut and return to Portugal.
+**<b>📌 Daily Fact:</b>** August 30th is the day in 1999 that East Timor voted for independence from Indonesia in a referendum.
