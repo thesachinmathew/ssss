@@ -1,2 +1,2 @@
 odingo
-**<b>📌 Daily Fact:</b>** August 31st is the day in 1986 that the Soviet passenger liner  Admiral Nakhimov sinks in the Black Sea after colliding with the bulk carrier Pyotr Vasev, killing 423.
+**<b>📌 Daily Fact:</b>** September 1st is the day in 1970 that Attempted assassination of King Hussein of Jordan by Palestinian guerrillas, who attacked his motorcade.
