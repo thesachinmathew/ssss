@@ -1,2 +1,2 @@
 odingo
-**<b>📌 Daily Fact:</b>** September 4th is the day in 1923 that Maiden flight of the first U.S. airship, the USS Shenandoah.
+**<b>📌 Daily Fact:</b>** September 5th is the day in 1960 that the poet Léopold Sédar Senghor is elected as the first President of Senegal.
