@@ -1,2 +1,2 @@
 odingo
-**<b>📌 Daily Fact:</b>** September 5th is the day in 1960 that the poet Léopold Sédar Senghor is elected as the first President of Senegal.
+**<b>📌 Daily Fact:</b>** September 6th is the day in 1620 that the Pilgrims sail from Plymouth, England, on the Mayflower to settle in North America.
