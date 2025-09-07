@@ -1,2 +1,2 @@
 odingo
-**<b>📌 Daily Fact:</b>** September 6th is the day in 1620 that the Pilgrims sail from Plymouth, England, on the Mayflower to settle in North America.
+**<b>📌 Daily Fact:</b>** September 7th is the day in 1986 that Desmond Tutu becomes the first black man to lead the Anglican Church in South Africa.
