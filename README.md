@@ -1,2 +1,2 @@
 odingo
-**<b>📌 Daily Fact:</b>** September 9th is the day in 1839 that John Herschel takes the first glass plate photograph.
+**<b>📌 Daily Fact:</b>** September 10th is the day in 506 that the bishops of Visigothic Gaul meet in the Council of Agde.
