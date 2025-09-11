@@ -1,2 +1,2 @@
 odingo
-**<b>📌 Daily Fact:</b>** September 10th is the day in 506 that the bishops of Visigothic Gaul meet in the Council of Agde.
+**<b>📌 Daily Fact:</b>** September 11th is the day in 1903 that the first race at The Milwaukee Mile in West Allis, Wisconsin is held.
