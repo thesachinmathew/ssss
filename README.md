@@ -1,2 +1,2 @@
 odingo
-**<b>📌 Daily Fact:</b>** September 11th is the day in 1903 that the first race at The Milwaukee Mile in West Allis, Wisconsin is held.
+**<b>📌 Daily Fact:</b>** September 12th is the day in 1609 that Henry Hudson begins his exploration of the Hudson River while aboard the Halve Maen.
