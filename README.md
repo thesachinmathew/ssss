@@ -1,2 +1,2 @@
 odingo
-**<b>📌 Daily Fact:</b>** September 12th is the day in 1609 that Henry Hudson begins his exploration of the Hudson River while aboard the Halve Maen.
+**<b>📌 Daily Fact:</b>** September 13th is the day in 1933 that Elizabeth McCombs becomes the first woman elected to the New Zealand Parliament.
