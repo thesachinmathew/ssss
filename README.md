@@ -1,2 +1,2 @@
 odingo
-**<b>📌 Daily Fact:</b>** September 13th is the day in 1933 that Elizabeth McCombs becomes the first woman elected to the New Zealand Parliament.
+**<b>📌 Daily Fact:</b>** September 14th is the day in 1994 that the Major League Baseball season is canceled because of a strike.
