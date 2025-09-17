@@ -1,2 +1,2 @@
 odingo
-**<b>📌 Daily Fact:</b>** September 16th is the day in 1975 that the first prototype of the MiG-31 interceptor makes its maiden flight.
+**<b>📌 Daily Fact:</b>** September 17th is the day in 1849 that American abolitionist Harriet Tubman escapes from slavery.
